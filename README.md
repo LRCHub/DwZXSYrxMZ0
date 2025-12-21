@@ -1,0 +1,75 @@
+# ピーナッツくん – Clione（feat. 轟はじめ）
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Why donʼt you get high
+Please show me your pride
+Ice Cream 溶けてく
+BItch donʼt kill my vibe
+いまはDonʼt talk
+出れないphone call
+Who the master control
+上がってく温度
+Why donʼt you get ride
+Please show me your grind
+鉄砲のようなskill 緑のfire
+You gotta move on
+回してDJ
+まだまだBaby
+混ぜるな危険
+君は氷の温度
+溶かす不思議な音
+Iʼm ready falling down on you
+Weʼre like かわいそうなマリオネット
+音によるべ任してるfeeling ok
+みだれ髪振りわました 君の上
+わたし気持ちいいことだけしたい Clione
+もう止められないdreaming on head
+君に触れる心の中 引き寄せ
+このBase lineとグランドしてよ for me
+内側の熱いところ my spot Clione
+水中に潜ってダイビング
+溺れちゃう君の前で
+リズムキープこのままで
+到達地点は目の前
+Dripping
+もっともっとGo faster
+危険なビジョン見る夜中
+弾け飛んだ スプラッター
+まだまだこんなもんじゃない
+潜水艦に乗った
+君を探索するイエローサブマリン
+燃料チャージ満タン
+目指す洞窟は狭くて危ない
+もう引き返せない
+もっと奥の方いきたい
+How you like it
+こんな風
+君を感じたい
+できれば朝まで
+Why donʼt you get ride
+Please show me your fire
+Weʼre like かわいそうなマリオネット
+音によるべ任してるfeeling ok
+みだれ髪振りわました 君の上
+わたし気持ちいいことだけしたい Clione
+もう止められないdreaming on head
+君に触れる心の中 引き寄せ
+このBase lineとグランドしてよ for me
+内側の熱いところ my spot Clione
+色めくサウンドに2人はparty all night
+言葉にならないこの
+衝動 衝撃
+気持ちいいことだけ
+するぼくはClione
+打ち上げ花火が 12345
+Weʼre like かわいそうなマリオネット
+音によるべ任してるfeeling ok
+みだれ髪振りわました 君の上
+わたし気持ちいいことだけしたい Clione
+もう止められないdreaming on head
+君に触れる心の中 引き寄せ
+このBase lineとグランドしてよ for me
+内側の熱いところ my spot Clione
+```

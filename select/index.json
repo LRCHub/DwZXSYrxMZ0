@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Clione（feat. 轟はじめ）",
+  "base_artist": "ピーナッツくん",
+  "createdAt": "2025-12-21T10:05:55.220848Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Clione (feat. 轟はじめ)",
+      "artist": "ピーナッツくん",
+      "has_synced": false,
+      "path": "select/pl_01_Clione_(feat._轟はじめ)_ピーナッツくん.txt"
+    }
+  ]
+}
